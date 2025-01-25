@@ -19,7 +19,6 @@
 - Erotic Content (Explicit adult imagery or sexual content.)
 - Fashion & Beauty (Trends, grooming, cosmetics, style guides.)
 - Finance (Personal finance, money management, banking products.)
-- FinTech (Financial tech, digital banking, mobile apps.)
 - Fitness & Exercise (Workout routines, physical health, fitness tips.)
 - Forgery & Scams (Fake documents, scams, fraud-related content.)
 - Food & Cooking (Recipes, culinary techniques, food-related discussions.)
